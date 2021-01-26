@@ -1,2 +1,0 @@
-# sanjakhmedov.github.io
-test
